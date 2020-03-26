@@ -1,1 +1,1 @@
-Dank Weed
+Dank
